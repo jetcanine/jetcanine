@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 Master's Student in Artificial Intelligence <br>
+🔭 Currently Pursuing Marsters in Artificial Intelligence <br>
 
 
 ## 🌐 Socials:
